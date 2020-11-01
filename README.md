@@ -1,2 +1,0 @@
-# 1forall.to
-This result from Lonely Planet, which ranks for the search term “travel inspiration”, does a great job of both satisfying the search query and selling the brand. In the first two words, it appeals to travel lovers who might be searching for inspiration, before going on to outline concisely what the brand has to offer them. The sitelinks that appear beneath it also entice searchers to click on a more specific page.
